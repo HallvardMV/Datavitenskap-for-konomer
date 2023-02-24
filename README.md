@@ -1,0 +1,1 @@
+# Datavitenskap-for-konomer
